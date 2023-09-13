@@ -9,7 +9,7 @@
 
 - 📫 ¡Aquí Me Puedes Contactar! ✌️✌️ **estebanlaiton98@gmail.com**
 
-- 📄 Aquí puedes ver mi experiencia 🤓 [https://www.linkedin.com/in/estebanl00/](https://www.linkedin.com/in/estebanl00/)
+- 📄 Aquí puedes ver mi experiencia 🤓 [https://www.linkedin.com/in/estebanl00/](https://www.linkedin.com/in/estebandl/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
